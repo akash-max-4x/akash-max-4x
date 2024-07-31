@@ -54,9 +54,6 @@
 - 📱𝐅𝐀𝐂𝐄𝐁𝐎𝐎𝐊:- [AKASH HASAN](https://www.facebook.com/akash.black.hacker.bd)
  
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
-
- 
-<img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
  
 - 💻𝐆𝐈𝐓𝐇𝐔𝐁:- [akash-max-4x](https://github.com/akash-max-4x)
  
